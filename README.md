@@ -7,7 +7,6 @@
 
 - I am also passionate about baking **so I have well-fed coworkers 😋**
 
-- 📫 Reach me at **https://www.linkedin.com/in/camille-fujisaki-80367787/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
